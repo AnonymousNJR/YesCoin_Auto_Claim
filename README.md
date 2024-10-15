@@ -1,2 +1,4 @@
-"هدف هاكرز بنجلاديش هو تحرير فلسطين 🇵🇸🇧🇩"#Mr.Ghost
-#CyberShieldforceBD
+yes coin taper free! 
+try at your own risk !
+educational purposes!
+follow us
